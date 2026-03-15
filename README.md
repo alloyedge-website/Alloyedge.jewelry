@@ -17,7 +17,7 @@ Bizhuteri elegante për femra – stil, elegancë dhe vetëbesim.
 
 ## ✨ Rreth Nesh
 
-**Alloyedge Jewelry** është një projekt që prezanton bizhuteri moderne dhe elegante për femra.  
+**Alloyedge Jewelry** prezanton bizhuteri moderne dhe elegante për femra.  
 Qëllimi ynë është të nxjerrim në pah **vetëbesimin, bukurinë dhe stilin tuaj unik** përmes bizhuterive minimaliste dhe elegante.
 
 ---
@@ -30,7 +30,7 @@ Qëllimi ynë është të nxjerrim në pah **vetëbesimin, bukurinë dhe stilin 
 🌸 **Unaza**
 
 Çdo produkt është i dizajnuar për të sjellë **elegancë dhe stil në çdo ditë**.  
-Ne fokusohemi tek **cilësia, detajet dhe stili femëror**.
+(Foto produktesh do të shtohen më vonë.)
 
 ---
 
